@@ -1,2 +1,3 @@
 # RRY025_Image_processing
 
+![387339569_163034440194374_4239535896359988182_n](https://github.com/chenbin234/RRY025_project/assets/46001920/c60b7b33-ac8c-4446-9981-002076f7067a)
